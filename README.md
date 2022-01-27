@@ -1,5 +1,5 @@
 ---
-title: The Divine Palm of YouMing - The storm is rising
+title: The Divine Palm of the Underworld - The storm is rising
 Description: The stormy clouds of the martial arts world rise again.
 ...
 
@@ -7,20 +7,20 @@ Description: The stormy clouds of the martial arts world rise again.
 
 A strange serial murder case...
 
-> Dear Master, the deceased are Si Ma Lin of the Qingcheng Sect, Zhuo Yi Fan of the Divine Sword Sect, Master Xuan Kong of Shaolin, and Xiang Ding Tian, the elder of the Beggar's Gang, all of whom have a strange turquoise palm mark on their bodies."
+> "Your Highness, the deceased are SiMa Lin of the Qingcheng Sect, Zhuo Yifan of the Divine Sword Sect, Master Xuan Kong of Shaolin, and Xiang Dingtian, the Elder of the Beggar's Gang, all of whom have a strange turquoise palm mark on their bodies."
 >
-> "Master died with this pearl stick in his hand, as if to tell us who the murderer is."
+> "Master died with this pearl stick in his hand, as if to tell us who the murderer was."
 >
-> "Apart from the emperor, who has the guts to go against Shaolin and the beggar gang?"
+> "Apart from the Emperor, who would have the guts to go against Shaolin and the Beggar's Gang?"
 
 leads to a little-known memory...
 
-> "The evil gods are above, I have suffered this calamity today and have no way out. I have no choice but to die without revenge! If the evil god has mercy on me, give me the power to help me kill my enemies, I am willing to be your servant for eternity, I will never go back on my word!
+> "The God of Evil above, I have no way out of this calamity. I have no choice but to die without revenge! If the God of Evil has mercy on me and gives me the strength to kill my enemies, I will be your servant for all eternity and I will not break my promise!
 
 Who is the real killer...
 
-> "TODAY, even if I am beaten to death by my master, I still want to understand!"
+> "I want to find out even if I have to beaten to death by my master today!"
 >
-> "Today, when I saw this 'Dragon Slap', I realized that there is a world outside of heaven and a man outside of man!
+> "When I saw this 'Dragon Slap' today, I realized that there is a world outside of heaven and a man outside of man!
 
-With the passage of time, the truth gradually emerged...
+As time goes by, the truth gradually emerges...
